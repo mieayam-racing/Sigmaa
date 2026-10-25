@@ -1,2 +1,0 @@
-# Sigmaa
-yntkts 
